@@ -14,5 +14,5 @@ which can be downloaded , shared and set as wallpaper with single click.
 ![image](https://cdn.discordapp.com/attachments/874963872296108062/874965070113828894/Screenshot_2021-08-11-16-06-13-202_com.animation.walpaper4k.jpg)
 # Devotional
 ![image](https://cdn.discordapp.com/attachments/874963872296108062/874965069740519474/Screenshot_2021-08-11-16-06-39-410_com.animation.walpaper4k.jpg)
-# Final
+# Final Activity: Full Screen (Actions want to do)
 ![image](https://cdn.discordapp.com/attachments/874963872296108062/874965201609441300/Screenshot_2021-08-11-16-09-00-421_com.animation.walpaper4k.jpg)
